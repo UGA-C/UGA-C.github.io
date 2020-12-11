@@ -1,1 +1,1 @@
-# UGA-C.github.io
+Map of my favorite destinations.
